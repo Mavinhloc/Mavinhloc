@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Mavinhloc
+- 👀 I’m interested in gaming 
+- 🌱 I’m currently learning Software Enginneer at FPT University
